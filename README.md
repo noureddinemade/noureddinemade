@@ -8,4 +8,4 @@
 
 💼 If you'd like, you can [visit my portfolio](https://noureddine.biz).
 
-If you'd like to get in touch about a project, [please read this first](https://noureddine.biz/my-next-role).
+If you'd like to get in touch about a project, [please read this first](https://noureddine.biz/fit-check).
